@@ -1,0 +1,141 @@
+Powiedz nam, o czym myślisz
+
+Talllama
+
+Opowiadanie oparte jest na eseju Aby zatrzymać piractwo potrzebujemy bardziej bezwględnej kontroli umysłu  Można przeczytać go na tej stronie:
+http://talllama.deviantart.com/art/We-Need-Tougher-Mind-Control-Laws-to-Stop-Piracy-388572088?q=gallery%3ATalllama&qo=1
+
+Timothy miał siedem lat i właśnie dostał implant; rodzice zazdrościli mu.
+- Kiedy byłem w jego wieku, musiałem uczyć się czytać zapamiętując dźwięk każdej litery. - powiedział jego ojciec.
+- Pamiętasz naukę matematyki z kalkulatorem? - powiedziała matka, kręcąc głową. - Masz szczęście, Timothy.
+Ale wszystko, o czym Timothy mógł teraz myśleć, to to, że implant jego przyjaciela Jamiego miał dwa razy więcej aktywnej pamięci i masywny dysk molekularny.  Chłopak nie powiedział rodzicom, że czuł się nie na czasie, choć teraz, kiedy został podłączony, zrozumiał, dlaczego nie mogli oni sobie pozwolić na wiele miłych rzeczy z prawdziwego świata.
+Timothy uśmiechnął się i podrapał skórę głowy w miejscu, w którym wyczuwał malutki ogolony punkt, umiejscowiony tuż nad jego korą czołową.  - Nie mogę się doczekać, kiedy na serio zacznę grać online.
+- Pamiętam, jak pierwszy raz się podłączyłam … - zaczęła jego matka.  Ale Timothy był zbyt zniecierpliwiony, żeby wysłuchać reszty jej historii.  
+- Pójdę go wypróbować. - powiedział.  
+- No dobrze... ale bądź ostrożny. 
+Timothy przytaknął energicznie. Usiadł na kanapie i zamknął oczy. Kiedy już podłączył się do internetu, poczuł, jak matka podchodzi do niego i głaszcze go po włosach, wyczuwając szorstkość jego nowej skóry.
+- On tak szybko rośnie.
+
+Timothy wybrał jeden z jego ulubionych światów, świat fantasy z niebosiężnymi wyspami unoszącymi się nad morzem chmur.  Miejsce, w którym wszedł do gry, znajdowało się na skraju urwiska z piaskowca. Chłodny wiatr owiewał jego skórę, chłopak otworzył usta i smakował go na języku.
+
+Potem rzucił się w przepaść i poleciał.  Pęd lotu zawiewał mu włosy do oczu. Timothy krzyknął.  
+Ale chwila….  Czegoś jeszcze brakowało.  Przemienił się w skrzydlatego tygrysa.
+
+Tak było lepiej.
+
+***
+
+Później tego samego dnia przeleciał pod warstwą mgły i wylądował w ogrodzie pełnym dziwnych kwiatów. Otoczona falbanami delikatnych błękitnych kwiatków, siedziała tam młoda wróżka i muskała nosek pręcikiem oblepionym pyłkiem z kwiecia.
+- Niezły awatar. -  powiedziała.
+- Dzięki. - odpowiedział Timothy. - Twój też jest ładny.
+- Poznajmy się.
+Wymienili zapoznawcze archiwa wspomnień. Helen była w jego wieku, ale mieszkała w Australii.
+- Nieźle, twoja mama piecze bardzo dobre ciasteczka.  Mogłabym powtarzać to wspomnienie przez cały dzień. - powiedziała Helen.  
+- O tak. To moje ulubione.
+- Dzięki za to, że się nim podzieliłeś. - powiedziała Helen. Przechyliła głowę w jego stronę.  - Hej, wiem gdzie możemy zdobyć więcej wspaniałych przepisów. Chcesz zobaczyć?
+- Jasne.
+Timothy szedł za nią przez internet. Helen na pewno musiała mieć szybszy implant i często zwalniała, czekając na niego.  Wydawało się, że wybrała bardzo okrężną drogę i przeszli przez wiele dziwnych witryn, których jeszcze nigdy nie widział.  Przenikanie przez każdą z nich było jak nakładanie kolejnych warstw ubrania, aż poczuł, że musi być już całkowicie opatulony od stóp do głów.
+W mniej niż mikrosekundę przybyli na miejsce.  Strona nie miała tu żadnej wizualnej reprezentacji oprócz starego drewnianego statku z czarnymi żaglami, przecinającego głęboki niebieski ocean; poza tym wszystko wypełniały czyste myślopliki.  Było tam też wiele reklam.  
+- No to jesteśmy. - powiedziała Helen z dumą.
+Timothy podłączył się do narzędzia wyszukiwania i użył go, aby szukać wspomnień przepisów na ciastka. Pojawiło się 1972763408 wyników; pobrał je wszystkie do swojego implantu i spodobało mu się z tego 30 tysięcy - prawie trzy sekundy zajęło mu przejrzenie ich wszystkich.  Westchnął rozkosznie kiedy skończył.
+- To było wspaniałe.
+Helen uśmiechnęła się.  - Lubisz czytać?
+- Jasne!
+Wysłał kolejne zapytanie i pojawiło się prawie bilion wyników: “Czterdzieści zabawnych faktów o Układzie Słonecznym", "Nowa Chińska Biblia", "Macierze, wyd. 3. ". "Biografia Johna Locke", "Romans o Prairie" i wiele, wiele więcej.  Ściągnął je wszystkie i otworzył pierwszą książkę na pierwszej stronie.  Wtedy to dostrzegł:  “Wszelkie prawa zastrzeżone."
+Timothy zesztywniał.  - Och.
+- Co się stało?
+- Helen ...  Czy te pliki są chronione prawem autorskim?
+- No, tak ... ale nikt nie będzie wiedział, że mamy do nich dostęp. - powiedziała.  - Dlatego przeszłam przez te wszystkie maski, żeby nikt się nie dowiedział, kim jesteśmy.
+Timothy szybko usunął książki z implantu.  - Po prostu nie możemy czytać książek takich jak te!  To jest piractwo.
+- Nikt nas nie nakryje.
+- Moja mama i tata zdenerwują się na mnie. - Posłał jej kopię swojego niepokoju.  
+- Cóż, mój tata mówi, że prawo autorskie jest głupie - powiedziała Helen, odsyłając emocję już z lekka pogardliwego współczucia.  - Mówi, że każdy, kto nie jest piratem, jest głupkiem.
+Timothy skrzywił się na nią.  - Mój tata mówi, że piractwo to kradzież.
+- Mój ojciec i ja mamy biliony książek i myśloplików, więc wiemy lepiej od ciebie. - powiedziała Helen. 
+- Nie. - Timothy protestował.  - My też dużo wiemy.
+- No dobrze, ile książek przeczytał twój ojciec?
+- Całe tony. - powiedział Timothy.  - Właściwie to mój wujek pracuje dla Zjednoczenia Przemysłu Myślnego Ameryki i wytwarza wszystkie myśli w świecie.  (Było w tym coś w rodzaju przesady, ale przecież chciał jej zaimponować.)
+Helen otworzyła szeroko oczy i jej przezroczyste skrzydła zatrzepotały.  - Pracuje w ZPMA?
+Timothy przytaknął dumnie.
+- Wracam do domu. - powiedziała Helen.  I zniknęła.
+Wydął wargi patrząc w miejsce w którym przed chwilą stała.  Potem zrzucił z siebie nazbierane warstwy i ruszył do domu.  Zupełnie nie mógł się zmusić, aby usunąć z implantu świeże, gorące ciasteczka.
+- Trzeba się ruszać, kiedy jest się w internecie. - powiedziała matka.  - Siedzenie na kanapie cały dzień nie jest dobre. Korzystaj z  bieżni, kiedy następnym razem będziesz online.
+
+***
+
+Bieżnia ruszyła i Timothy zaczął iść w łagodnym, łatwym tempie dwóch mil na godzinę.  Biorąc pierwszy krok zarejestrował ruch swojej prawej i lewej nogi, potem zapętlił go i ustawił na odtwarzanie przez godzinę.  Zadowolony z tego, że wszystko działa jak należy, wszedł do internetu.
+
+Jego ojciec czekał w rodzinnym wirtualnym salonie.  Było tam o wiele lepiej niż w ich prawdziwym domu, salon miał tu ściany obłożone złoconą tapetą, wisiały tam obrazy i leżał orientalny dywan w skomplikowane wzory.  Storczyki w stojącym na stoliku wazonie z dynastii Ming nigdy nie więdły; błazenek w narożnym akwarium nigdy nie potrzebowała jedzenia, a dywan nigdy nie pokrywał się kurzem. Wszystko było o wiele lepsze niż w rzeczywistym świecie.  
+- Słyszałeś wiadomości? -  zapytał ojciec.  - Wczoraj w nocy zamknęli wielką piracką stronę.
+Jego ojciec udostępnił mu znajomy obraz statku z czarnymi żaglami.  Timothy’emu zaschło w gardle, na ustach czuł smak skradzionych ciasteczek.  Szybko uruchomił program, który pozwolił mu zachować niewinną twarz.
+- Och?
+- W samą porę. - powiedział jego ojciec. - Ci złodzieje udostępniali każdemu do pobrania praktycznie całą sumę ludzkiej wiedzy.
+- To podłe. - powiedział Timothy.
+- Niektórzy ludzie myślą, że mają prawo być wszechwiedzący kosztem artystów i pisarzy. -  powiedział ojciec, kręcąc głową. - Za moich czasów nazywaliśmy to kradzieżą.
+Timothy spojrzał na dywan i skanował jego wzory palcem.  Nagle zdał sobie sprawę, że to było kopiowanie i natychmiast przestał.  
+- To jest wojna przeciwko kreatywności, tak właśnie jest. - kontynuował jego ojciec. - Przecież mogłem spiratować cały dom zupełnie za darmo. Zamiast tego zapłaciłem słuszną stawkę modelarzowi, który zaprojektował go za .00031 monet.
+Jego matka zmaterializowała się w swoim ulubionym fotelu, ojciec odwrócił się do niej.  
+- Słyszałeś?  Zablokowali drugą piracką witrynę świata.  Jej przywódcy dostają jeden dzień wirtualnego zamknięcia za każdy pojedynczy plik, który rozpowszechnili.  Zostaną w więzieniu do końca świata. Jeśli to ma jakiekolwiek znaczenie.
+Spojrzała rozdrażniona.  - Przypuszczam, że zostali już przywróceni z kopii zapasowych.
+- Pamiętam, że kiedyś kryminaliści wysyłani do więzienia właśnie tam przebywali.
+Timothy nie podnosił wzroku znad dywanu.  Przypatrywał się jego strukturze.  - Tato, co stanie się z ludźmi, którzy ściągali rzeczy z tej strony? - Kusiło go, aby zamiast ojca zapytać Google, ale bał się, że policja mogłaby dotrzeć do historii jego wyszukiwań i zacząć coś podejrzewać.   
+- Hmm.  Och, nic.  Gdyby policja rygorystycznie podchodziła do sprawy rozpowszechniania myśli, musieliby wszystkich wysłać do więzienia.
+- Wszystkim? - zapytał Timothy podnosząc wzrok.  
+Jego ojciec założył nogę na nogę i spojrzał zamyślony.  - Timothy, kiedy czytasz książkę, czy dzielisz się z kimkolwiek swoimi przemyśleniami na jej temat?
+- Oczywiście. - powiedział Timothy.  
+- Cóż, zgodnie z prawem autorskim to kradzież. Ale nikt o tym nie wie.
+- Ale dlaczego?  Niczego nie zabieram.
+- Przecież osoba, z którą dzielisz wspólne wspomnienia na temat książki, nie musi już jej czytać, więc pisarz nie dostaje żadnych pieniędzy.
+- Sam dzieliłeś się ze mną wspomnieniami książek. - protestował Timothy.
+- Tylko wtedy, jeśli już kupiłem dodatkową kopię dla ciebie. - powiedział jego ojciec.  
+- Och,  sądzę, że... 
+Ojciec nachylił się w jego kierunku.  - Tak to już jest, Tim - załóżmy, że miałeś naprawdę fajny sen i chcesz go sprzedać na Amazonie.  Ale załóżmy też, że dzielisz ten sen ze znajomymi, a oni biorą go i udostępniają każdemu w internecie  za darmo - bez płacenia tobie czegokolwiek. To nie byłoby bardzo miłe, prawda?
+- Nie...
+- Albo załóżmy, że masz ciekawą myśl, a haker włamał się do twojego umysłu i ją ukradł. Wtedy każdy na świecie będzie w stanie myśleć twoje myśli, nie dając ci żadnej mikromonety".
+Timothy skinął przytakując, serce mu zamierało.
+- Problem w tym, że nikt z nich nie zdaje sobie sprawy, że robi coś złego. - powiedział jego ojciec. - Myślą, że to tylko nieszkodliwe dzielenie się.
+- A co, jeśli ktoś udostępnia wspomnienie jedzenia? - Timothy zapytał.  - Jak, powiedzmy, na przykład słodycze?
+- Zgodnie z prawem wszystkie myśli są chronione prawem autorskim, jeśli tylko są one ustalone na trwałym nośniku twojego hipokampa lub implantu. - powiedział jego ojciec. - Więc tak, wszystkie wspomnienia jedzenia byłyby chronione prawami autorskimi.  O ile oczywiście twórca nie postanowił przekazać ich do domeny publicznej.
+Promyk nadziei przebił mrok. Timothy zapytał - Domeny publicznej?
+- Tak.  Jeśli osoba i wszystkie jej kopie, klony, itp. umiera bez tworzenia kopii zapasowych (co jest mało prawdopodobne, ale może się zdarzyć), całkowicie przestaje istnieć w obu światach: realnym i wirtualnym.  Kiedy tak się dzieje, czasomierz zaczyna odliczać czas wszystkich przysługujących jej praw autorskich. 70 lat po tym, jak całkowicie przestaną one istnieć w każdej postaci, jej słowa, myśli, muzyka, filmy, wspomnienia i marzenia stają się własnością publiczną. Oznacza to, że każdy może z nich korzystać bez konieczności uzyskiwania przed tym zgody.
+- Jak sprawdzić, czy coś jest w domenie publicznej?
+- Wystarczy spojrzeć na daty publikacji. - powiedział jego ojciec.  - Wszystko, co powstało przed rokiem 1920 jest w domenie publicznej.
+- Ale wtedy nie było żadnych myśli. - powiedział Timothy.
+- Pewnie że były. - powiedział jego ojciec. - Po prostu wtedy ludzie nie mogli nagrywać i przechowywać myśli tak, jak możemy robić to dzisiaj. W tamtych czasach muzyk nie mógł nawet pobierać opłat za to, że ludziom wpadały do głowy jego piosenki. 
+Matka pokręciła głową.  - To dopiero były czasy.
+- Widzisz, Timothy - kontynuował ojciec. - jeśli ludzie nie mają motywacji do myślenia lub marzenia, nie będą tego robić. I wtedy nikt nie miałby żadnych nowych myśli.  Każdy przestałby myśleć, bo nie byłoby w tym żadnych pieniędzy.
+- Ale powiedziałeś, że ludzie mieli myśli w 1920 roku, chociaż nie było wtedy praw autorskich.
+- Tak, masz rację.  Chodzi mi o to, że nie było wtedy zawodowych myślicieli.
+- Byłoby źle, gdyby ludzie przestali myśleć - powiedział Timothy.
+- Właśnie. Ale spróbujcie powiedzieć to piratom.
+Timothy zamilkł, a potem znowu spróbował. - Tato...
+- Tak?
+Ostrożnie dobierał swoje następne słowa.  - Czy piraci wiedzą więcej niż inni, bo przeczytali tak wiele książek?
+Jego ojciec spojrzał na niego ostro.  - Oczywiście, że nie.  Nie musisz wszystkiego wiedzieć, aby być inteligentnym.  Tylko policja musi mieć dostęp do całej ludzkiej wiedzy, i to tylko dlatego, że musi wiedzieć wszystko, aby nas chronić.  Jeśli masz dostęp do Wikipedii, masz więcej wiedzy niż kiedykolwiek będziesz potrzebował.  Piraci ściągają, ponieważ uważają, że są uprawnieni do przejęcia każdej własności za darmo, a nie dlatego, że chcą się uczyć.  To tylko pretekst.
+Timothy poczuł jakąś małą ulgę; miał gdzieś, że okazał się głupkiem. Czuł się raczej jak ktoś, kto przestał być na bieżąco.
+Policjant zmaterializował się w wirtualnym pokoju.
+- Witam, jestem oficer Pettijohn.
+Timothy zamarł.  Przyszli po niego!  Pójdzie do więzienia na zawsze!  Boże, proszę, jeśli mi teraz pomożesz,  przysięgam, że nigdy nie będę kradł więcej myśli!
+Jego ojciec wstał.  - Co możemy dla pana zrobić, sir?
+- Jestem tu w sprawie praw autorskich. - powiedział policjant.  - Ktoś ukradł myśli o ciasteczkach.
+Timothy chciał protestować, błagać, uciec, ale coś przykleiło go do dywanu i zapieczętowało mu usta.
+- Tak? - jego ojciec odezwał się ponuro.
+- Wygląda na to, że ktoś udostępnił myśl o ciasteczkach twojej żony na pirackiej stronie.
+- Na której?  Czy nie na tej, która właśnie została zamknięta?
+Policjant skinął niechętnie.  - Mieli gdzieś ukrytą kopię zapasową.
+Ojciec westchnął.  - Zawsze ją mają, prawda?
+- No cóż, po prostu przyszedłem, aby powiedzieć, że złożyliśmy w pańskim imieniu zawiadomienie o kradzieży mienia.  Zajmiemy się tym, kto je opublikował.
+- Dziękuję, doceniam całą waszą dobrą robotę. - powiedział jego ojciec.
+- Po prostu taką mam pracę. - policjant odszedł.
+Timothy pospiesznie skasował wszystkie wspomnienia ciasteczek, Helen, wszystkie maski i myślodzielenia.
+- Wydawał się miłym człowiekiem. -  powiedziała matka.
+- Masz rację.
+- Zastanawiam się, w jaki sposób dotarli do mojego przepisu.  Nawet nie myślałam, że on może być wartościowy.
+Timothy odchrząknął.  - Bardzo lubię prawa autorskie, tato.  Nigdy nie pomyślę myśli, która nie należy do mnie, nigdy. Przyrzekam.
+- Dobry chłopak. - powiedział ojciec. - Uczciwi ludzie zawsze płacą za wiedzę. Tylko złodzieje myślą swobodnie.
+
+
+26 lipca 2013, 20:01:35
+Tłumaczenie: Marcin Wilkowski (wilkowski.org)
+
+Oryginalny tekst i tłumaczenie dostępne na licencji Creative Commons Uznanie Autorstwa - Na Tych Samych Warunkach 3.0 Unported http://creativecommons.org/licenses/by-sa/3.0/deed.pl
